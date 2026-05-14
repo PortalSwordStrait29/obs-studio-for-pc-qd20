@@ -1,4 +1,4 @@
-# 
+# Get the ultimate OBS Studio for PC | OBS Studio for Windows extension with OBS Studio for PC | OBS Studio for Windows ultimate Extension: live-streaming & bitrate-control.
 
 
 
